@@ -16,6 +16,7 @@ the major cities and we are ready for deployment as soon as possible by the end
 of this year 2015.
 
 Team EDXBD
+Contact info:
 FB: http://www.facebook.com/edxbd
 M: +8801794708955
 E: edxbangladesh@gmail.com
